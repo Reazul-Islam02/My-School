@@ -1,1 +1,1 @@
-# My-School
+# My-School-Info
